@@ -1,0 +1,5 @@
+- 👋 Hola, soy @LOLEMO
+- 👀 Estoy interesado en Minecraft y otros juegos.
+- 🌱 Actualmente estoy aprendiendo html
+- 💞️ Estoy buscando colaborar en webmc
+- 🐦 ¡Sígueme en Twitter! @ 14lolemo
